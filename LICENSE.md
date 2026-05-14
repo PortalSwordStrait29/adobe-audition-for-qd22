@@ -1,4 +1,4 @@
-# 
+# vip Adobe Audition for PC | Adobe Audition for Windows Extension | reverb + compression is the best Adobe Audition for PC | Adobe Audition for Windows extension, featuring reverb
 
 
 
